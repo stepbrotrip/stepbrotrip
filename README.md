@@ -1,2 +1,7 @@
-It's stepbrotrip welcome to my code
-Have fun and don't fuck any of it up
+I code things
+   _____________
+   |           |
+    |           |
+___|___________|__
+ \|⭕️   ‿   ⭕️|\
+  [_]_______[_]
